@@ -12,6 +12,15 @@
 </div>
 
 ***
+<div align="center">
+   ↻ ◁ II ▷ ↺
+   
+1:43 ───ㅇ───── 3:19
+
+**Taco's Tirade . . . **
+
+*Inanimate Insanity, Rheagan Rizio*
+</div>
 
 ˚ · • . ° . [_pt boundaries_](https://rentry.co/avechope) ; [**extended bio**](https://robofloat.straw.page) ; [~~links~~](https://linktr.ee/voidstarz) ˚ · • . ° .
 
@@ -32,6 +41,8 @@
 
 𝙄 𝙖𝙢 𝙤𝙛𝙩𝙚𝙣 𝙩𝙖𝙗𝙗𝙚𝙙 𝙤𝙧 𝙨𝙞𝙩𝙩𝙞𝙣𝙜 𝙬𝙞𝙩𝙝 𝙖 𝙘𝙡𝙤𝙨𝙚 𝙛𝙧𝙞𝙚𝙣𝙙.
 ☺ **WHISPER 2 INT!!!** I see it easier & reply faster ! ^^
+
+> **ACTIVITY STATUS:** What I am doing while I am online PT will usually be listed on my Github profile. This is so people know if I am busy or not. I also tend to mark myself Online/Offline through the pronouns section on my profile. Please reference this when necessary. This is for Your convenience.
 
 ***
 
