@@ -33,7 +33,7 @@
 𝘍𝘳𝘦𝘲𝘶𝘦𝘯𝘵 𝘓𝘰𝘤𝘢𝘵𝘪𝘰𝘯𝘴:
 **Safe Server** ~~(Generally do not enjoy the explicit/vulgar atmosphere of and behavior in 18+)~~
 
-; LMK (Monkie Kid) + OSC (Object Show)
+; LMK (Monkie Kid) + OSC (Object Show) + Cartoons/Animation (Ratboy Genius, Amphibia, TOH, etc)
 
 
 ₓ˚. ୭ ˚○◦˚.˚◦○˚ ୧ .˚ₓ  ₓ˚. ୭ ˚○◦˚.˚◦○˚ ୧ .˚ₓ  
@@ -47,7 +47,7 @@
 ***
 
 ***NOTE -**
-I am a [content creator](https://www.youtube.com/@VoidstarzArt?sub_confirmation=1) and community lead. I often film, stream, or am hosting an event on Ponytown with [my server members](https://voidstarz.square.site/community). If this is the case, I usually will not approach other individuals outside of our group out of respect.
+I am a [content creator](https://www.youtube.com/@VoidstarzArt?sub_confirmation=1) and [community lead](https://linktr.ee/TVCommunity). I often film, stream, or am hosting an event on Ponytown with my server members. If this is the case, I usually will not approach other individuals outside of our group out of respect.
 
 <div align="center">
 <img width="640" height="61" alt="Image" src="https://github.com/user-attachments/assets/fe019bcf-91de-4eac-8cf0-5f9b51c8d669" />
