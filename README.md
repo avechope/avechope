@@ -22,7 +22,7 @@
 *Inanimate Insanity, Rheagan Rizio*
 </div>
 
-˚ · • . ° . [_pt boundaries_](https://rentry.co/avechope) ; [**extended bio**](https://robofloat.straw.page) ; [~~links~~](https://linktr.ee/voidstarz) ˚ · • . ° .
+˚ · • . ° . [_pt boundaries_](https://rentry.co/avechope) ; [**extended bio**](https://robofloat.straw.page) ; [~~links~~](https://linktr.ee/voidstarz) ; [guestbook](https://robofloat.atabook.org/) ˚ · • . ° .
 
 ✉ *dear ponytown reader,*
 
